@@ -1,0 +1,2 @@
+# Lagalaxiadelsaber-plane-arqui
+PLANO
